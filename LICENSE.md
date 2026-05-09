@@ -1,4 +1,4 @@
-
+Strava for macOS ultimate Tool: exercise-library & community-challenges offers the most advanced Strava for macOS tool, with exercise-library and community-challenges. Ideal for
 
 
 
